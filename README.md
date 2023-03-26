@@ -1,1 +1,1 @@
-# Website-for-a-Rice-Sales-Company---School-Project
+# Website for a Rice Sales Company - School Project
